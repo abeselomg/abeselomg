@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@abeselomgebrekidan12](https://medium.com/@abeselomgebrekidan12)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1tR3nsoMDBKqzjL3wSpBS-oXA3d78QLbc/view](https://drive.google.com/file/d/1tR3nsoMDBKqzjL3wSpBS-oXA3d78QLbc/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1npaq_2X0QJfEoR5e0KLS_0u9OcobUIUX/view?usp=sharing)
 
 - ⚡ Fun fact **I am**
 
