@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1npaq_2X0QJfEoR5e0KLS_0u9OcobUIUX/view?usp=sharing](https://drive.google.com/file/d/1npaq_2X0QJfEoR5e0KLS_0u9OcobUIUX/view?usp=sharing)
 
-- ⚡ Fun fact **I am**
+- ⚡ Fun fact **I am good at sports**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
