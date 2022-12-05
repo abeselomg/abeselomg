@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Abeselom Gebrekidan</h1>
-<h3 align="center">A Passionate Web3 Engineer</h3>
+<h3 align="center">A Passionate Full-stack developer and Web3 Engineer</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=abeselomg&label=Profile%20views&color=0e75b6&style=flat" alt="abeselomg" /> </p>
 
